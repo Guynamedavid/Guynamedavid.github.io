@@ -1,1 +1,0 @@
-# Guynamedavid.github.io
